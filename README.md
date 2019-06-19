@@ -4,7 +4,7 @@
 
 If you want to ask me for a letter of recommendation for a job, graduate school, visa, residency or grant, please check the following.
 
-## Please proceed only if you check 5 or more of the qualifications. 
+## Please proceed only if you check 5 or more of the qualifications 
 
 
 - Did you read the Stanford University Undergrad Guide on [Asking for a Letter of Recommendation](https://undergrad.stanford.edu/academic-planning/engage-faculty/asking-letters-recommendation)? Nothing I write in this note is outside of the convention. 
@@ -27,7 +27,7 @@ If you want to ask me for a letter of recommendation for a job, graduate school,
 
 ## Notes
 
-I love to support my students and colleagues for their next steps. That's why I teach and organize at SFPC and other institutions. However, each year I get asked by many alums and former staff to write letters. In the past few years, it's challenging to keep track of them during the winter holiday season. I would love to support my former student and staff to achive their goal, but I need to be more explicit about the types of interaction I want to have and expectations for my students and colleagues. 
+I love to support my students and colleagues for their next steps. That's why I teach and organize at SFPC and other institutions. However, each year I get asked by many alums and former staff to write letters. In the past few years, it has become challenging to keep track of them during the winter holiday season. I would love to support my former student and staff to achive their goal, but I need to be more explicit about the types of interaction I want to have and expectations for my students and colleagues. 
 
 I don't have a template that I repeat for the letters. I write a new letter for each student and customize for each of their applications. There are some people who ask to have a letter drafted by the student, make a few edits and sign them. I don't think that's what a letter of recommendation is supposed to be. 
 
